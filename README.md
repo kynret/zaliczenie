@@ -1,1 +1,1 @@
-# zaliczenie
+Mykola Terianyk
